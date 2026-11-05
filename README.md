@@ -3,6 +3,8 @@
 ## Video link
 https://ikelte-my.sharepoint.com/:v:/g/personal/ccq946_inf_elte_hu/IQCpxlh6BlXXQ4AjWyRfEAa5AWIK1NzpzO1V6A0Be9HTdCo?e=qjw7gb
 
+https://youtu.be/w9czaZTKLKY
+
 [Student name (neptun code) video](https://)
 
 ## Statement
